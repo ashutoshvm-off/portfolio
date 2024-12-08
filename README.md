@@ -1,0 +1,1 @@
+The following file shows my portfolio website that i was planning to create. I hopefully enjoyed making one. The design for the website was refered from online and a certain changes was included in it.
